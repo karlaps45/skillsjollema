@@ -4,3 +4,8 @@
 <img width="935" height="695" alt="scho3552774" src="https://github.com/user-attachments/assets/0a558592-df9d-420d-a838-767fb0abf37d" />
 <img width="935" height="695" alt="scho35527745232724" src="https://github.com/user-attachments/assets/375ea5af-7579-43f4-ab9f-29de66850886" />
 <img width="935" height="695" alt="schoolsjollebolle" src="https://github.com/user-attachments/assets/82dd2459-3e6f-478e-a151-da67a4d0e384" />
+
+https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExMmoxYTZvM3pteDIydGhra2Q4Y2I4eGo4OTJ6bmp4andhenBjNXZtbSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/qk6ESSYI8zZyKESChi/giphy.gif
+
+
+
